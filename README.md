@@ -6,8 +6,8 @@
 - 📅 Born on *14 August 2014*, I take pride in sharing my birthday with my country's Independence Day.  
 
 ## Interests  
-- 🏋️‍♂️ Fitness enthusiast, following *Sang Jin Wo's workout routine, and proud of my unique **Kedroon Speed* (100 steps in 1 minute while running).  
-- 🎬 A passionate fan of *Marvel, **Monsterverse, and the **MADDOG SuperNational Universe 2*.  
+- 🏋️‍♂️ Fitness enthusiast, following *Sang Jin Wo's* workout routine, and proud of my unique *Kedroon Speed* (100 steps in 1 minute while running).  
+- 🎬 A passionate fan of *Marvel*, *Monsterverse*, and the *MADDOG SuperNational Universe 2*.  
 - 📺 Excited about new releases like What If...? Season 3 (aka Watcher Season 3), Solo Leveling Season 2, and movies like Vijay Nagar Vampire and the new Superman in DCU.  
 - 📚 Avid reader and anime lover, with my favorite animes and mangas including:  
   - *Dragon Ball Z/Super/Daima*  
